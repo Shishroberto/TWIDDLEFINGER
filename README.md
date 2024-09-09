@@ -1,0 +1,1 @@
+after all of the wasted years, need to get taste ur fear, need a lil taste ur blood, then we can finally be one, ur everything i ever could wanted, just a single bite and i'm through, there is no need to beg or bargain, cuz all i need its u
